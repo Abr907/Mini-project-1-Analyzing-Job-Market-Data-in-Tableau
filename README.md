@@ -116,6 +116,3 @@ High-quality candidate matching
 
 By aligning its platform with these data-driven trends, DataSearch can deliver enhanced value to employers and job seekers while strengthening its competitive advantage.
 
-📥 Want This as a Slide Deck?
-
-I can generate a full polished PPTX with visuals (after you confirm).
